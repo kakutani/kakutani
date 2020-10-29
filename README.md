@@ -1,5 +1,9 @@
 ### Hi there 👋
 
+I'm currently doing some kind of 'agile coach/advisor' things for tech companies in Japan as a freelancer.
+
+Feel free to reach out to me if you have interested in, anytime via [twitter DM](https://twitter.com/kakutani), [facebook messages](https://fb.me/kakutani) or else. Needles to say, I can read/write Japanse well.
+
 <!--
 **kakutani/kakutani** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
