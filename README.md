@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there :keyboard: :zombie:
 
 I'm currently doing some kind of 'agile coach/advisor' things for tech companies in Japan as a freelancer.
 
