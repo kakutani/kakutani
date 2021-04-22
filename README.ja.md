@@ -1,4 +1,7 @@
-# 角谷信太郎
+# 角谷 信太郎(かくたに しんたろう)
+
+* https://twitter.com/kakutani
+* https://fb.me/kakutani
 
 ## 👀 TL;DR
 
